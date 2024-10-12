@@ -1,4 +1,4 @@
-## Hi there 👋
+## 我是p社甲级战犯，苟卡氪金爱好者，无论如何优势在我烂梗使用者，我爱敲代码。👋
 
 <!--
 **lzt2333/lzt2333** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
